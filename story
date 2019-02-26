@@ -1,0 +1,1 @@
+Joe was sitting in Chipotle eating a burrito bowl when the weirdest thing happened. He got a call from his roommate who told him to go look outside.  
