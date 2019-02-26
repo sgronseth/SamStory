@@ -4,3 +4,5 @@ He looked out the window and saw his roomate with the largest parade float he ha
 
 While outside, Joe realized the Chipotle had gotten to him faster than expected as he began hearing the thunder from down under.
 In a panic, he had to quickly find the fastest path to the restroom.
+
+By the time he got out, the parade had already finished. Chipotle food poisoning ruined the day again.
